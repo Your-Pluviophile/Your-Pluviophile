@@ -4,6 +4,6 @@
 
 
 
-I'm preparing to go for a daily internship this year. 
+I'm preparing to go for a daily/summer internship this year. 
 
 
